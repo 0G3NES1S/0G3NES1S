@@ -8,7 +8,7 @@
 
 
 
-# ![SAKURA-CARD-CAPTOR](https://graphic.neocities.org/sakura-bouncing.gif) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON-2](https://i.postimg.cc/8cCBzF7k/10oifk.gif) Hi! I'm 0G3NES1S! ![ICON-3](https://i.postimg.cc/gcMHBK7x/v4acc0.gif) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![SAKURA-CARD-CAPTOR-2](https://graphic.neocities.org/sakura-side-step.gif)
+# ![SAKURA-CARD-CAPTOR](https://graphic.neocities.org/sakura-bouncing.gif) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON-2](https://i.postimg.cc/8cCBzF7k/10oifk.gif) Hi! I'm 0G3NES1S! ![ICON-3](https://i.postimg.cc/gcMHBK7x/v4acc0.gif) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![SAKURA-CARD-CAPTOR-2](https://graphic.neocities.org/sakura-side-step.gif)
 
 ────────────────────────── ・┆ ✦ ʚ![ICON](https://files.catbox.moe/7jwqka.gif)ɞ ✦ ┆・ ─────────────────────────
 
